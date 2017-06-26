@@ -1,1 +1,0 @@
-# snipevitalik.github.io
